@@ -1,1 +1,1 @@
-# WEB-STANDARTS canela 100%
+# WEB-STANDARTS canela 2025
